@@ -5,7 +5,6 @@
  
  Essa linha eu adicionei diretamente no site! ***QUE IMPRESSIONANTE!***
  
- Muito Obrigado pela contribuição!
  Siga os perfis abaixo:
  
  &nbsp;
